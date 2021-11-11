@@ -9,4 +9,6 @@
 ### - being quick to praise and slow to criticize, not just others, but myself, and 
 ### - remembering that short-term frustration will eventually result in long-term improvement of my abilities.
 
+## Feel free to bookmark this to keep an eye on my project updates!:wink:
+
 ![This is an image](https://images.unsplash.com/photo-1611432579402-7037e3e2c1e4?ixid=MnwxMjA3fDB8MHxwaG90by1wYWdlfHx8fGVufDB8fHx8&ixlib=rb-1.2.1&auto=format&fit=crop&w=765&q=80)
