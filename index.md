@@ -1,4 +1,4 @@
-# **A New Chapter**
+# **Welcome to VMCVAY's homepage!**
 
 ## I'm Vernessa McVay, a 53 year-old music lover, aspirant hiker and a mother. I'm also a woman who's looking to my new found growth mindset to change the trajectory of my life.
 
